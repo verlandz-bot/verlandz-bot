@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @verlandz-bot
+- 🐱 I’m a cat but don't like eat fish 🐟
+- 💪 My motivation is empowering @verlandz
